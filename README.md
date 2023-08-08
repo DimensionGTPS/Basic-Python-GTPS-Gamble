@@ -1,2 +1,2 @@
 # Basic-Python-GTPS-Gamble
-Join https://discord.gg/YSMTYSeNu9
+Join Discord Soon
